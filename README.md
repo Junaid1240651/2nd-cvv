@@ -6,7 +6,8 @@
 
 ![download (1)](https://github.com/Junaid1240651/images/assets/86207985/3910c636-2667-44a5-bfdd-a7ac6ae86c6a)![Screenshot 2023-09-05 093714](https://github.com/Junaid1240651/images/assets/86207985/52020aab-b061-4801-853a-0419215de3b5)![download](https://github.com/Junaid1240651/images/assets/86207985/ec915211-b1c5-4fa0-af66-4aaccf49123a)
 
-![Screenshot 2023-09-05 093802](https://github.com/Junaid1240651/images/assets/86207985/28ea7a5e-586a-4f03-ae75-3e3d98ad1018)
+![Screenshot 2023-09-05 093802](https://github.com/Junaid1240651/images/assets/86207985/28ea7a5e-586a-4f03-ae75-3e3d98ad1018)![download (1)](https://github.com/Junaid1240651/images/assets/86207985/530f81e1-a29b-4a4e-bc56-7101200605b0)
+
 
 ![etyert](https://github.com/Junaid1240651/images/assets/86207985/9ae26852-4825-4809-9666-3283203ebf01)
 ![Screenshot 2023-09-05 094304](https://github.com/Junaid1240651/images/assets/86207985/0699e128-e3c9-4337-84c0-1d7a67995560)
